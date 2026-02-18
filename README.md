@@ -41,7 +41,7 @@
 ### ✉️ Let's Connect
 
 - 📬 [Email](mailto:jeduardoacacio@gmail.com)
-- 💼 LinkedIn: _coming soon..._
+- 💼 [LinkedIn](https://www.linkedin.com/in/jos%C3%A9-eduardo-acacio-pedroza-717070326/)
 - 🌐 Portfolio: _in progress_
 ---
 
